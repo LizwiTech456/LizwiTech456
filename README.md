@@ -8,7 +8,7 @@ I attaiened a diploma in Audio Technology at The Academy of Sound Engineering in
 My Skill set as a ProTools user is very broad but the most important is my understanding of how to use ProTools.
 My work flow with this software allows me to deliver high quality projects at a quick rate.
 
-If you want to check out some of my best work use this google drive link.
+If you want to check out some of my best work use the Link in my bio.
 <!--
 **LizwiTech456/LizwiTech456** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
